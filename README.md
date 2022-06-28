@@ -14,7 +14,6 @@ i go by any pronouns.
 
  pony town stuff! 
 - please do not copy any of my skins
-- you may boop if you'd like to i dont mind lol
 - please ask before cuddles or kisses ok? thankz :))
 
  DNI!!! 
