@@ -15,6 +15,8 @@ i go by any pronouns.
  pony town stuff! 
 - please do not copy any of my skins
 - please ask before cuddles or kisses ok? thankz :))
+- gotta get to know me before ya friend me xd
+- i may be in certain places like the cafe , the beach , or just sitting around the spawn . if your interested in finding me >:)
 
  DNI!!! 
 - proshippers
